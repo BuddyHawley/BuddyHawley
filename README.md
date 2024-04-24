@@ -1,4 +1,4 @@
-### Hi there 👋
+
 
 <!--
 **12d94m/12d94m** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+![made by uh tattercat on pinterest i think](https://i.pinimg.com/564x/44/e5/15/44e5152b8bea716f674ec032d0c81c71.jpg)
+
+uh idk how to use this heres my
+[Guestbook](https://batscythe.123guestbook.com/) 
+(sign it... pls.... Or dont i dont really care.)
