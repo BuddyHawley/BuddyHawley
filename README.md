@@ -19,4 +19,4 @@ Here are some ideas to get you started:
 uh idk how to use this heres my
 [Guestbook](https://batscythe.123guestbook.com/) 
 (sign it... pls.... Or dont i dont really care.) 
-and my porbnouns pageee [here]([https://pronouns.cc/@Tarkyr](https://en.pronouns.page/@Tarkyr))
+and my porbnouns pageee [here](https://en.pronouns.page/@Tarkyr)
