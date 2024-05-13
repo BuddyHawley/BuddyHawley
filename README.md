@@ -34,5 +34,5 @@ and my porbnouns pageee [hererrruhh (Still a wip)](https://en.pronouns.page/@Tar
 	
 	If my status is like away I really am, I will reply late to whispers lol (And I wont reply to public measges at all.. 
  	Unless I like just came back from being afk) If I have busy on it might br bc im offtab (completely or patrially)
-	or dont really wanna interact w anyone but friends, sorry... (I dont rlly put like DNI in my name mostly
+	or I dont really wanna interact w anyone but friends, sorry... (I dont rlly put like DNI in my name mostly
  	bc im lazy and I know ppl arent going to listen (Not saying that people interact w me a lot but its happened) 
