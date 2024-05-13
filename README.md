@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-![made by uh tattercat on pinterest i think](https://i.pinimg.com/564x/44/e5/15/44e5152b8bea716f674ec032d0c81c71.jpg)
+  ![](https://i.pinimg.com/564x/a4/39/05/a43905768a19187f815605144479cb36.jpg)
 
 uh idk how to use this heres my
 [Guestbook](https://batscythe.123guestbook.com/) 
