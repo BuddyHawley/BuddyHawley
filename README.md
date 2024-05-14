@@ -36,3 +36,6 @@ and my porbnouns pageee [hererrruhh (Still a wip)](https://en.pronouns.page/@Tar
  	Unless I like just came back from being afk) If I have busy on it might br bc im offtab (completely or patrially)
 	or I dont really wanna interact w anyone but friends, sorry... (I dont rlly put like DNI in my name mostly
  	bc im lazy and I know ppl arent going to listen (Not saying that people interact w me a lot but its happened) 
+
+	If you interact t with me I miggghhht be mean bc i need to warm up to ppl before I actually want to have a conversation
+ 	w/ someone but i dont bite.... I swear (im desperate can you tell
