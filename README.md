@@ -28,7 +28,8 @@ and my porbnouns pageee [hererrruhh (Still a wip)](https://en.pronouns.page/@Tar
 
 				Things im like really interested in
 		Tally hall (and Cojum dip i love cojum di), Objectified (I LOVE THIS COMIC SM), 
-	Michael Vey, Omori, Faith the unholy trinity, uh idk I dont like a lot of things (Im not rlly in any fandoms so I guess it wouldnt rerally matter)
+	Michael Vey, Omori (i lovei lovei love i), Faith the unholy trinity.
+ 	uh idk I dont like a lot of things (Im not rlly in any fandoms so I guess it wouldnt rerally matter)
 
  	Im not mean... I swear..... I like having converssyionds
 	
