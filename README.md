@@ -32,6 +32,7 @@ and my porbnouns pageee [hererrruhh (Still a wip)](https://en.pronouns.page/@Tar
  	Uh the fazbear frights books SPECIFICALLY the second one idk... I didnt read the other ones and I didnt like the 
   	first one so..............Im not in the fnaf fandom nor do I consider myself a fan though lol (Nothing
    	towards fnaf fans I just dont really have an interest in fnaf anymmoorrreee) 
+    	HEheheh weezer
  	uh idk I dont like a lot of things (Im not rlly in any fandoms so I guess it wouldnt rerally matter)
 
  	Im not mean... I swear..... I like having converssyionds
