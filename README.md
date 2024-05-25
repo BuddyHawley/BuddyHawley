@@ -31,7 +31,8 @@ and my porbnouns pageee [hererrruhh (Still a wip)](https://en.pronouns.page/@Tar
 	Michael Vey, Omori (i lovei lovei love i), Faith the unholy trinity (OH MY GOD FAITH FAITH FAITH FIATH IUFHRHAHTB DHABD FAITH INT)
  	Uh the fazbear frights books SPECIFICALLY the second one idk... I didnt read the other ones and I didnt like the 
   	first one so..............Im not in the fnaf fandom nor do I consider myself a fan though lol (Nothing
-   	towards fnaf fans I just dont really have an interest in fnaf anymmoorrreee) 
+   	towards fnaf fans I just dont really have an interest in fnaf anymmoorrreee + I do like the games
+    but I am not in the fandom I just like silly robiot.... sihj...........) 
     	HEheheh weezer
  	uh idk I dont like a lot of things (Im not rlly in any fandoms so I guess it wouldnt rerally matter)
 
@@ -44,3 +45,6 @@ and my porbnouns pageee [hererrruhh (Still a wip)](https://en.pronouns.page/@Tar
 
 	If you interact t with me I miggghhht be mean bc i need to warm up to ppl before I actually want to have a conversation
  	w/ someone but i dont bite.... I swear (im desperate can you tell
+	Im usually at the fnaf area (Whether I have a fnaf skin or not,) Sometimes near the Phighting area (Ik its on my dni but Im not actually
+ 	IN the area + no1 there talks to me anyway so it doesnt matter </3), and anywhere else its either bc Im trying smt new, have a pony
+  	from a fandom im in, or sitting w a friend idk
