@@ -27,13 +27,11 @@ and my porbnouns pageee [hererrruhh (Still a wip)](https://en.pronouns.page/@Tar
  	Systems interact with atleast some caution...  Its just bc its hard for me to interact w systems nothin personal </3
 
 				Things im like really interested in
-		Tally hall (and Cojum dip i love cojum di), Objectified (I LOVE THIS COMIC SM), 
-	Michael Vey, Omori (i lovei lovei love i), Faith the unholy trinity (OH MY GOD FAITH FAITH FAITH FIATH IUFHRHAHTB DHABD FAITH INT)
- 	Uh the fazbear frights books SPECIFICALLY the second one idk... I didnt read the other ones and I didnt like the 
+		Tally hall (and Cojum dip i love cojum di), Objectified, Michael Vey, 
+  	Omori, Faith the unholy trinity, uh the fazbear frights books SPECIFICALLY the second one idk... I didnt read the other ones and I didnt like the 
   	first one so..............Im not in the fnaf fandom nor do I consider myself a fan though lol (Nothing
    	towards fnaf fans I just dont really have an interest in fnaf anymmoorrreee + I do like the games
-    but I am not in the fandom I just like silly robiot.... sihj...........) 
-    	HEheheh weezer
+    but I am not in the fandom I just like silly robiot.... sihj...........) MSI 
  	uh idk I dont like a lot of things (Im not rlly in any fandoms so I guess it wouldnt rerally matter)
 
  	Im not mean... I swear..... I like having converssyionds
