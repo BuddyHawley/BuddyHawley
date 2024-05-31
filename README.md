@@ -21,6 +21,8 @@ uh idk how to use this heres my
 (signs are appreciated but idrk i enver check this) 
 and my porbnouns pageee [hererrruhh (Still a wip)](https://en.pronouns.page/@Tarkyr)
 
+		Call me like uh any of the anmes on my guestbook. it/its preference, but I like he/they too (no she/her, ty.) :3 
+
 
 		Basic DNI, Tallyshippers (Id hope no ponytown players are Tally shippers...?), 
 	phighting & Regretevator (strictly1!), im not rlly strict about anythign else lol .I never hide ppl
