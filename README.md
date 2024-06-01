@@ -35,7 +35,8 @@ and my porbnouns pageee [hererrruhh (Still a wip)](https://en.pronouns.page/@Tar
    	towards fnaf fans I just dont really have an interest in fnaf anymmoorrreee + I do like the games
     but I am not in the fandom I just like silly robiot.... sihj...........) MSI 
  	uh idk I dont like a lot of things (Im not rlly in any fandoms so I guess it wouldnt rerally matter)
-
+	   		(Sorry this is hard to read)
+      
  	Im not mean... I swear..... I like having converssyionds
 	
 	If my status is like away I really am, I will reply late to whispers lol (And I wont reply to public measges at all.. 
