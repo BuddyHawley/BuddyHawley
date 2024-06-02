@@ -25,7 +25,7 @@ and my porbnouns pageee [hererrruhh (Still a wip)](https://en.pronouns.page/@Tar
 
 
 		Basic DNI, Tallyshippers (Id hope no ponytown players are Tally shippers...?), 
-	phighting & Regretevator (strictly1!), im not rlly strict about anythign else lol .I never hide ppl
+	phighting & Regretevator , im not rlly strict about anythign else lol .I never hide ppl
  	Systems interact with atleast some caution...  Its just bc its hard for me to interact w systems nothin personal </3
 
 				Things im like really interested in
