@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 uh idk how to use this heres my
 [Guestbook](https://batscythe.123guestbook.com/) 
 (signs are appreciated but idrk i enver check this) 
-and my porbnouns pageee [hererrruhh (Still a wip)](https://en.pronouns.page/@Tarkyr)
+and my porbnouns pageee [hererrruhh (Still a wip)](https://en.pronouns.page/@Buddyhawley)
 
 		Call me like uh any of the anmes on my uhhh prounouns paeg. it/its preference, but I like he/they too (no she/her, ty.) :3 
 
