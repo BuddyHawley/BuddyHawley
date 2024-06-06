@@ -21,6 +21,4 @@ uh idk how to use this heres my
 (signs are appreciated but idrk i enver check this) 
 and my porbnouns pageee [hererrruhh (Still a wip)](https://en.pronouns.page/@Buddyhawley)
 
-		
-
-	uh idk look at my strawpage
+uh idk look at my strawpage
