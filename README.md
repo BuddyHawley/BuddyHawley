@@ -14,11 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-![](https://i.pinimg.com/564x/a4/39/05/a43905768a19187f815605144479cb36.jpg)
-
-uh idk how to use this heres my
-[Guestbook](https://batscythe.123guestbook.com/) 
-(signs are appreciated but idrk i enver check this) 
-and my porbnouns pageee [hererrruhh (Still a wip)](https://en.pronouns.page/@Buddyhawley)
+![IDK HOW TO CENTER IMAGES BRO HELP](https://i.pinimg.com/564x/1d/4e/bf/1d4ebf45b3980afd2268a7710ac68b69.jpg)
 
 uh idk look at my strawpage
