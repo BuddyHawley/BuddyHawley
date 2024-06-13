@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-![IDK HOW TO CENTER IMAGES BRO HELP](https://i.pinimg.com/564x/1d/4e/bf/1d4ebf45b3980afd2268a7710ac68b69.jpg)
+![IDK HOW TO CENTER IMAGES BRO HELP](https://i.pinimg.com/564x/60/14/6a/60146a4664f72880eba337c0bf032545.jpg)
 
 I'll make a rentry once I gain the knowlage about how to make good rentry decals trust
 
