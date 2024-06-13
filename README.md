@@ -17,3 +17,5 @@ Here are some ideas to get you started:
 ![IDK HOW TO CENTER IMAGES BRO HELP](https://i.pinimg.com/564x/1d/4e/bf/1d4ebf45b3980afd2268a7710ac68b69.jpg)
 
 I'll make a rentry once I gain the knowlage about how to make good rentry decals trust
+
+the only thing im interested in rn is Michael Vey . uh besides rthat I guess the only other things i am into are bands... .. .????????
