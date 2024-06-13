@@ -19,3 +19,5 @@ Here are some ideas to get you started:
 I'll make a rentry once I gain the knowlage about how to make good rentry decals trust
 
 the only thing im interested in rn is Michael Vey . uh besides rthat I guess the only other things i am into are bands... .. .????????
+
+probablyyy offtab i dont respond to public messages 
