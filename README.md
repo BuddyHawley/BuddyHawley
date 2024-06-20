@@ -22,4 +22,4 @@ the only thing im interested in rn is Michael Vey (hahhaa giggle si lvoe this bo
 
 probablyyy offtab i dont respond to public messages (unless I already am in public chat..!!!)
 
-(https://pronouns.cc/@Tarkyr)[heres my pronouns cc or whatever i guess]
+[my pronouns cc if any of you guys want it i guess](https://pronouns.cc/@Tarkyr)
