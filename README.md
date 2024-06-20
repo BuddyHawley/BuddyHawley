@@ -21,3 +21,5 @@ I'll make a rentry once I gain the knowlage about how to make good rentry decals
 the only thing im interested in rn is Michael Vey (hahhaa giggle si lvoe this book sooo much). uh besides rthat I guess the only other things i am into are bands... .. .????????
 
 probablyyy offtab i dont respond to public messages (unless I already am in public chat..!!!)
+
+(https://pronouns.cc/@Tarkyr)[heres my pronouns cc or whatever i guess]
